@@ -13,3 +13,5 @@
 > Con l'esperienza della partecipazione attiva è necessario portarne il significato all'interno dei contesti sociali, come la scuola.
 
 > Non edulcolorare la Partecipazione Attiva perché davanti alle prime, fisiologiche, difficoltà, i partecipanti potrebbero sentirsi frustrati e abbandonare il percorso.
+
+> Lavorare sul desiderio, non sul bisogno. Il desiderio è potente, da energia, anche per imparare e da resilienza ai progetti.
