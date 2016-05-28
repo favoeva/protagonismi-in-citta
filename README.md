@@ -2,6 +2,10 @@
 
 - [Evento Facebook](https://www.facebook.com/events/472070756335339)
 
+## Igor Salomone
+
+- [Estratti](/igor-salomone.md)
+
 ## ECDM (Epic Civic Digital Marketers)
 
 - [Slide (PDF)](/ecdm.pdf)
